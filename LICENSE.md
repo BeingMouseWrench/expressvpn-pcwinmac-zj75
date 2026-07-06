@@ -1,4 +1,4 @@
-# 
+# Mis à jour ExpressVPN extensions pour Mac OS | VIP ExpressVPN extensions pour PC Windows. Avec tunnelage partagé et détection des logiciels malveillants — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
